@@ -4,11 +4,17 @@
 • First about a little about myself'///
 
 & Hiu hiu~ Na is my name and my nickname is Tali🦋  (I can feel free about the nickname you gave me when we became close ^^).
+
 & MBTI: ISFJ🫧
+
 & She/her;they/them zzz.
+
 & From: Vietnamese
+
 & It can be said that I am a friendly person with my friends, but sometimes I am also afraid to communicate with people I am not close to because I am too shy˙ᵕ˙
+
 & I'm a person who always talks about everything, but sometimes I'm also quite quiet :d, when you need to talk about something, please tell me (although I don't give useful advice but I'll listen u, away).
+
 & I will be happy when someone makes friends with me, I'm not a difficult person and I always consider other people's feelings before acting.><
 
 • Nom nom about my game "PONY TOWN🍎".
