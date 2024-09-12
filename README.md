@@ -20,16 +20,19 @@
 • Nom nom about my game "PONY TOWN🍎".
 
 & Often online games, but mostly afk and occasionally offtab (you can whis with me). I'm really comfortable when you CUDDING so don't be shy😉.
+
 & Online mainly on Vietnam 1 server, you will easily find me at spawn. And sometimes online safe server - server 18+.𖦹
 
 • My Bias ໒꒰ྀི´• ˕ •` ꒱ྀིა❤❤️‍🔥❤️‍🔥
 
 & I'm simp many characters at the same time ^^
+
 & a 'little' characters I like: Miya Chinen, Xiao, Dainsleif, Scara, Pantalone,...@@
 
 • Fandom ‧˚꒰🐾꒱༘⋆
 
 & MAIN FANDOM: GENSHIN IMPACT!! (and other fandoms that I participate in such as HQ!!, BLLK, MHA, JJK...)✨
+
 & About otp ship, popular couples. (I don't care much about otp) +.+
 
 𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼 I'VE SAID EVERYTHING I NEED TO INTRODUCE ABOUT MYSELF SO!! DON'T HESITATE TO BE FRIENDS WITH ME😘˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
