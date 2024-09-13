@@ -6,7 +6,7 @@
 
 • FIRST A LITTLE ABOUT MYSELF'///
 
-& Hiu hiu~ Na is my name and my nickname is Tali🦋  (I can feel free about the nickname you gave me when we became close ^^).
+& Hiu hiu~ Na is my name and my nickname is Tali✰(I can feel free about the nickname you gave me when we became close ^^).
 
 & MBTI: ISFJ ʚɞ
 
