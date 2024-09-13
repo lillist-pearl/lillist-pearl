@@ -1,6 +1,6 @@
 ♡ 𝓗𝓮𝓵𝓵𝓸 ♡
 
-౨ৎ Clomb clomb👀 I'm Na-I'm here!
+₊˚⊹♡ Clomb clomb👀 I'm Na-I'm here!
 
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────
 
@@ -26,17 +26,17 @@
 
 & Online mainly on Vietnam 1 server, you will easily find me at spawn. And sometimes online safe server - server 18+.𖦹
 
-• My Bias ໒꒰ྀི´• ˕ •` ꒱ྀིა❤❤️‍🔥❤️‍🔥
+• My Bias(๑>؂•̀๑) ❤️‍🔥❤️‍🔥
 
 & I'm simp many characters at the same time ^^
 
 & a 'little' characters I like: Miya Chinen, Xiao, Dainsleif, Scara, Pantalone,...@@
 
-• Fandom ‧˚꒰🐾꒱༘⋆
+• Fandom ‧(๑>◡<๑)
 
 & MAIN FANDOM: GENSHIN IMPACT!! (and other fandoms that I participate in such as HQ!!, BLLK, MHA, JJK...)✨
 
 & About otp ship, popular couples. (I don't care much about otp) +.+
 
-𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼 I'VE SAID EVERYTHING I NEED TO INTRODUCE ABOUT MYSELF SO!! DON'T HESITATE TO BE FRIENDS WITH ME😘˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
+₊‧.°.⋆✮⋆.°.‧₊ I'VE SAID EVERYTHING I NEED TO INTRODUCE ABOUT MYSELF SO!! DON'T HESITATE TO BE FRIENDS WITH ME・┆✦ʚ♡ɞ✦ ┆・🎀
 
