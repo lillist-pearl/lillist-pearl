@@ -34,7 +34,7 @@
 
 • FANDOM ‧(๑>◡<๑)
 
-& MAIN FANDOM: GENSHIN IMPACT!! (and other fandoms that I participate in such as HQ!!, BLLK, MHA, JJK...)✨
+& MAIN FANDOM: GENSHIN IMPACT/HONKAI STAR RAIL!! (and other fandoms that I participate in such as HQ!!, BLLK, MHA, JJK...)✨
 
 & About otp ship, popular couples. (I don't care much about otp) +.+
 
