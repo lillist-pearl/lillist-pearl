@@ -40,6 +40,7 @@
 
 ₊‧.°.⋆✮⋆.°.‧₊ I'VE SAID EVERYTHING I NEED TO INTRODUCE ABOUT MYSELF SO!! DON'T HESITATE TO BE FRIENDS WITH ME・┆✦ʚ♡ɞ✦ ┆・🎀
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------
+https://www.pinterest.com/pin/198439927325939147/
 ![24 Funny Doodles This Artist Drew During Meetings They Didn’t Need To Be At](https://github.com/user-attachments/assets/ee4b3633-898d-42da-9d44-4ca780860e0c)
 
 
