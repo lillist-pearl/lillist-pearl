@@ -30,11 +30,11 @@
 
 & I'm simp many characters at the same time ^^
 
-& a 'little' characters I like: Miya Chinen, Xiao, Dainsleif, Scara, Pantalone,...@@
+& a 'little' characters I like: Miya Chinen, Xiao, Dainsleif, Scara, Pantalone, Mr. Scarletella...@@
 
 • FANDOM ‧(๑>◡<๑)
 
-& MAIN FANDOM: GENSHIN IMPACT/HONKAI STAR RAIL!! (and other fandoms that I participate in such as HQ!!, BLLK, MHA, JJK...)✨
+& MAIN FANDOM: GENSHIN IMPACT/HONKAI STAR RAIL!! (and other fandoms that I participate in such as HQ!!, BLLK, MHA, JJK, Homocipher...)✨
 
 & About otp ship, popular couples. (I don't care much about otp) +.+
 
