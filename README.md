@@ -30,7 +30,7 @@
 
 & I'm simp many characters at the same time ^^
 
-& a 'little' characters I like: Miya Chinen, Xiao, Dainsleif, Scara, Pantalone, Mr. Scarletella...@@
+& a 'little' characters I like: Miya Chinen, Xiao, Dainsleif, Scara, Pantalone, Danheng, Mr. Scarletella...@@
 
 • FANDOM ‧(๑>◡<๑)
 
