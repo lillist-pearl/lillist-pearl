@@ -24,13 +24,13 @@
 
 & Often online games, but mostly afk and occasionally offtab (you can whis with me). I'm really comfortable when you CUDDING so don't be shy😉.
 
-& Online mainly on Vietnam 1 server, you will easily find me at spawn. And sometimes online safe server - server 18+.𖦹
+& Online mainly on Vietnam safe server, you will easily find me at spawn. And sometimes online safe server - server 18+.𖦹
 
 • MY BIAS(๑>؂•̀๑) ❤️‍🔥❤️‍🔥
 
 & I'm simp many characters at the same time ^^
 
-& a 'little' characters I like: Miya Chinen, Xiao, Dainsleif, Scara, Pantalone, Danheng, Mr. Scarletella...@@
+& a 'little' characters I like: MIYA CHINEN, Xiao, Dainsleif, Scara, Pantalone, Danheng, Mr. Scarletella...@@
 
 • FANDOM ‧(๑>◡<๑)
 
