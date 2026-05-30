@@ -16,7 +16,7 @@
  • Main fandom is: GI, HSR.
 
 ˚⋆𐙚｡ 𝐵𝐼𝐴𝑆 𖦹.ᡣ𐭩˚
-[I LOVE DAINSLEIF N PANTALONE SO MUCH!!! 
-](https://www.pinterest.com/pin/703756189174887/)─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ──
+  I LOVE DAINSLEIF N PANTALONE SO MUCH!!!  https://www.pinterest.com/pin/593982638393516706/
+─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ──
  • That's all I want to say ._., tks to read my profile꒰ᐢ. .ᐢ꒱.
     
