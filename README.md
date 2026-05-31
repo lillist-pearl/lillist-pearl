@@ -2,22 +2,8 @@
 ♡♡ °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･ ♡♡
 
 ⋆˚꩜｡ Womb womb👀 I'm Na-I'm here!
+![Alt Tag](https://i.pinimg.com/originals/0c/af/9f/0caf9f7b8ab4917287aaaf8b8b772cd7.gif)
 
-
-─────🎀────────🎀───────🎀────────🎀────────🎀─────────🎀────────🎀───────🎀─────────🎀────────🎀───────🎀────────🎀────────🎀────────🎀──── .
-˚˖𓍢ִ໋❀𝔸𝔹𝕆𝕌𝕋 𝕄𝕐𝕊𝔼𝕃𝔽˚˖𓍢ִ໋❀
- •  Lyna is my name n my nick name is Tali >ᴗ<!
- 
- •  I'm 16yo // I'm female, you can call me: she, her, they, them,...💗
-
- • I'm friendly and feel comfortable when you cudding and hug me.💗
-
-⋆. 𐙚˚࿔ 𝙵𝙰𝙽𝙳𝙾𝙼 𝜗𝜚˚⋆
- • Main fandom is: GI, HSR.
-
-˚⋆𐙚｡ 𝐵𝐼𝐴𝑆 𖦹.ᡣ𐭩˚
-  !I LOVE DAINSLEIF N PANTALONE SO MUCH!!!
-
-─── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ───── ⋆⋅☆⋅⋆ ──
- • That's all I want to say ._., tks to read my profile꒰ᐢ. .ᐢ꒱.
+─────🎀────────🎀───────🎀────────🎀────────🎀─────────🎀────────🎀───────🎀─────────🎀
+꒰ᐢ. .ᐢ꒱. -online at SF SV Vietnam & SF SV regularly.
     
