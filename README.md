@@ -1,9 +1,11 @@
 ִ ࣪ ˖ ࣪ ᨰꫀᥣᥴ᥆ꩇꫀ ! ᰔ ִ ׄ
 ♡♡ °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･ ♡♡
 
-⋆˚꩜｡ Womb womb👀 I'm Na-I'm here!
-![Alt Tag](https://i.pinimg.com/originals/0c/af/9f/0caf9f7b8ab4917287aaaf8b8b772cd7.gif)
+⋆˚꩜｡ HIII! u can call me Na or Tali!
+<img width="1162" height="410" alt="image" src="https://github.com/user-attachments/assets/7d1a7d08-4aa6-409e-b4a9-184042dad4f0" />
 
 ─────🎀────────🎀───────🎀────────🎀────────🎀─────────🎀────────🎀───────🎀─────────🎀
-꒰ᐢ. .ᐢ꒱. -online at SF SV Vietnam & SF SV.
+꒰ᐢ. .ᐢ꒱. -online at SF SV Vietnam & SF SV, fandom GI n HSR!
+💗I'd love to be friends with you!
+   ૮₍ ´ ꒳ `₎ა🎀
     
